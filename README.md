@@ -18,7 +18,8 @@ May Allah bless you immensely.
   ❤️ **I love you very much.**  
   Today, tomorrow, and in every future we share.
 
-  — *Yours forever*
+*Yours forever*
+
   Shaista.
 
 p.s, this is my first time doing this so I hope I did well.😁
