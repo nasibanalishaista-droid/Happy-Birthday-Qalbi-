@@ -4,7 +4,7 @@
   <details>
     <summary>🎂 Open birthday envelope</summary>
 
-  Qalbi, happy 27th birthday to you, you are amazing and my greatest most cherished gift from Allah**.
+  Qalbi, happy 27th birthday to you, you are amazing and my greatest most cherished gift from Allah.
 
   I hope today reminds you of how loved you are,not just by the people around you,  
   but by me who already believes in you deeply.
@@ -15,6 +15,6 @@
   Today, tomorrow, and in every future we share.
 
   — *Yours, forever*
-  Mrs.Hafeez
+  Shaista
 
 </details>
